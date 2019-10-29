@@ -1,1 +1,1 @@
-# B1ue is smart!
+# B1ue is stupid! :P
